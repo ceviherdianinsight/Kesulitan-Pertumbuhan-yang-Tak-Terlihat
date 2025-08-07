@@ -43,6 +43,9 @@ dan setiap tangis adalah air yang menyuburkan jiwa
 agar tumbuh lebih tinggi dari sebelumnya.
 
 
+<br>
+<br>
+
 > **Untukmu yang mencintai pertumbuhan, 24 Juli 2025**
 > 
 > **by: [ceviherdianinsight.github.io](https://ceviherdianinsight.github.io)**
